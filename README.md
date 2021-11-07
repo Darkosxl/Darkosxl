@@ -5,7 +5,6 @@ This is the continuation of my old account @darkwarro, whose e-mail was corrupte
 
 Contacts:
 darkwarrogames@gmail.com
-
 bscemarslan@gmail.com
 
 
