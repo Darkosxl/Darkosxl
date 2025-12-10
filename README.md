@@ -1,3 +1,3 @@
-AI artist and dev. HMU on bscemarslan@gmail.com for any request
+Just a dev. DIO fan. HMU on bscemarslan@gmail.com for any request
 
 
