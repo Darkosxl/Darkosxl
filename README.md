@@ -1,3 +1,3 @@
-Just a dev. DIO fan. HMU on bscemarslan@gmail.com for any request
+minmaxing cortisol 
 
-
+bscemarslan@gmail.com
