@@ -1,4 +1,4 @@
 minmaxing cortisol 
 
-amorelabs.co
+cem@amorelabs.co
 bscemarslan@gmail.com
